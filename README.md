@@ -1,2 +1,2 @@
 # INFORMATION
-creating to get info
+creating to get info OF SUPRA
